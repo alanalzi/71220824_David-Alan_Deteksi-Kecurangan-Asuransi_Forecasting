@@ -1,0 +1,1 @@
+# 71220824_David-Alan_Deteksi-Kecurangan-Asuransi_Forecasting
